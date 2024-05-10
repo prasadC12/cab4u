@@ -1,3 +1,3 @@
 Welcome to Cab4u Rentals, where your journey begins with convenience, comfort, and reliability.
 At DriveWell, we understand that every trip is unique, which is why we offer a diverse fleet of vehicles to suit your every need. From sleek sedans perfect for city exploration to spacious SUVs ideal for family adventures.
-Booking with DriveWell is effortless. Our user-friendly website allows you to browse our inventory, compare prices, and secure your reservation with just a few clicks. Plus, with flexible rental options and competitive rates, you can enjoy the freedom of the open road without breaking the bank.
+Booking with Cab4u is effortless. Our user-friendly website allows you to browse our inventory, compare prices, and secure your reservation with just a few clicks. Plus, with flexible rental options and competitive rates, you can enjoy the freedom of the open road without breaking the bank.
